@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EnVadeh
 - 👀 I’m interested in lots of things
-- 🌱 I’m currently learning how to be cool
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on da
 - 📫 How to reach me ...
 
